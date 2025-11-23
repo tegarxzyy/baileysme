@@ -48,5 +48,5 @@ console.log("Ur pairing code : " + code)
 ```
 
 
-Follow https://t.me/xatanicvxii 
-Untuk Join Partnership !
+Follow https://t.me/tegarxzyy
+Untuk Buy Kebutuhan Hosting! 
